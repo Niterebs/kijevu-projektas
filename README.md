@@ -1,2 +1,2 @@
 # kijevu-projektas
-LABAS DRAUGAI
+LABAS DRAUGAS
