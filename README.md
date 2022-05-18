@@ -1,2 +1,3 @@
 # kijevu-projektas
 LABAS DRAUGAS
+Šakiai neegzistuoja. Šakiai yra valstybinis melas, sukurtas NAusėdos, kad apgauti paprastus mokesčių rinkėjus.......,...
