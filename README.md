@@ -1,3 +1,2 @@
 # kijevu-projektas
-fgjkghikjghikuohkouikyuminytityuyhrguyt
 LABAS DRAUGAI
